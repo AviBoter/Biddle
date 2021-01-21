@@ -50,3 +50,5 @@
 
 קרדיטים:
 https://www.freepik.com
+
+מפתחים: AviBoter,HilaShushan,BenItzhak,UrielSucks.
